@@ -1,1 +1,0 @@
-# Teoria-D.github.io
